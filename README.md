@@ -23,9 +23,33 @@ When I hear you breathe
 I get wings to fly
 I feel that I'm alive
 I am alive
+
 # Emmanuel
+When you reach for me
+When you reach for me
+Raising spirits high
+God knows that
+That I'll be the one
+Standing by through good and through trying times
+And it's only begun
+I can't wait…
 
 # Emmanuel
 When you reach for me
 When you reach for me
 # Emmanuel
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+>>>>>>> 3e120f852c41996349a91b53dcb1d39c8933e9fa
