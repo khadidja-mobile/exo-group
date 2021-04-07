@@ -15,12 +15,7 @@ I just drift away
 All my worries die
 I'm glad that I'm alive
 
-You've set my heart on fire
-Filled me with love
-Made me a woman on clouds above
-I couldn't get much higher
-My spirit takes flight
-'Cause I am alive
+La suite est à vous !
 When you call on me
 When you call on me
 When I hear you breathe
