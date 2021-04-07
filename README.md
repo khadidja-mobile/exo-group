@@ -18,3 +18,11 @@ I'm glad that I'm alive
 La suite est à vous !
 
 
+When you reach for me
+When you reach for me
+Raising spirits high
+God knows that
+That I'll be the one
+Standing by through good and through trying times
+And it's only begun
+I can't wait…
