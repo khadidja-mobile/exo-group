@@ -15,7 +15,7 @@ I just drift away
 All my worries die
 I'm glad that I'm alive
 
-La suite est à vous !
+# Emmanuel
 When you call on me
 When you call on me
 When I hear you breathe
@@ -23,3 +23,9 @@ When I hear you breathe
 I get wings to fly
 I feel that I'm alive
 I am alive
+# Emmanuel
+
+# Emmanuel
+When you reach for me
+When you reach for me
+# Emmanuel
