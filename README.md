@@ -1,4 +1,3 @@
-<<<<<<< HEAD
 # exo-group 
 I'm Alive
 Céline Dion
