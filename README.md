@@ -1,3 +1,4 @@
 # exo-group
 # Bonjour groupe ! 
-# C'est faycal
+# Hello, moi je suis Khadidja
+# hello c'est faycal
