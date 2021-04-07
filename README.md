@@ -1,3 +1,4 @@
+<<<<<<< HEAD
 # exo-group 
 I'm Alive
 Céline Dion
@@ -14,3 +15,7 @@ When you bless the day
 I just drift away
 All my worries die
 I'm glad that I'm alive
+
+La suite est à vous !
+
+
